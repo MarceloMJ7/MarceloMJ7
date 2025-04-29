@@ -35,8 +35,8 @@ Sempre busco novos desafios, projetos e ideias para colocar em prática o que ap
 
 ### 📫 Contato
 
-- **LinkedIn:** [Marcelo de Moura] (www.linkedin.com/in/marcelomj)
-- **E-mail:** Marcelo_MJ7@hotmail.com
+- **LinkedIn: www.linkedin.com/in/marcelomj
+- **E-mail: Marcelo_MJ7@hotmail.com
 - **Portfólio (em breve)**
 
 ---
